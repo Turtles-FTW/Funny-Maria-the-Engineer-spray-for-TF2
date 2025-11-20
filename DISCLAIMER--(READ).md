@@ -1,2 +1,2 @@
 # Funny-Maria-the-Engineer-spray-for-TF2
-I DID NOT make the art. ALL credit goes to u/Gaston_21205 on Reddit for the art. I did not commision u/Gaston_21205 to make the art. All I did was import his artwork as a spray in TF2 with some funny text over it. If u/Gaston_21205 wants me to delete this then I will. Gladly. Here is the image on GameBanana: https://gamebanana.com/sprays/81885
+I DID NOT make the art. ALL credit goes to u/Gaston_21205 on Reddit for the art. I did not commision u/Gaston_21205 to make the art. All I did was import his artwork as a spray in TF2 with some funny text over it. If u/Gaston_21205 wants me to delete this then I will. Gladly. Here is the image on GameBanana that I also imported: https://gamebanana.com/sprays/81885
